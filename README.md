@@ -1,17 +1,17 @@
-# 吱音 - 超解压的美食催眠白噪音
+# Crunchy - Food White Noise
 
-减压白噪音 & 催眠大师 & 小睡眠 & 冥想助眠 & 安静
+Relax, Hypnosis, Dream, Sleep
 
 ---
 
-吱音app是一款精致的美食白噪音应用，它提供了食物咀嚼、做饭、厨房等各种白噪音效果集合，让你仿佛置身于美食世界，享受听觉盛宴。
+Crunchy app is an exquisite food white noise application. It provides a collection of various white noise effects such as food chewing, cooking, kitchen, etc., making you feel like you are in the world of food and enjoy an auditory feast.
 
-白噪音是一种能够覆盖其他声音干扰的稳定声波，它可以帮助人们降低焦虑、改善睡眠质量、提高注意力和创造力等。
+White noise is a steady sound wave that can cover other sound distractions, which can help people reduce anxiety, improve sleep quality, improve concentration and creativity, and more.
 
-吱音app不仅可以帮助入眠催眠，也有正念功能，通过美食的声音也可以极大地缓解压力。无论你是想要安静地休息一下，还是需要集中精神工作学习，吱音app都能为你提供合适的声音场景。
+The Crunchy app can not only help you fall asleep and hypnotize, but also has a mindfulness function. The sound of delicious food can also greatly relieve stress. Whether you want to take a quiet break, or need to concentrate on work and study, Crunchy app can provide you with the right sound scene.
 
-你是否有过这样的经历，晚上躺在床上，却怎么也睡不着？或者白天工作学习，却总是分心烦躁？如果你想找到一个有效的放松方式，那么吱音app可能是你的最佳选择。
+Have you ever had the experience of lying in bed at night and not being able to fall asleep? Or work and study during the day, but are always distracted and irritable? If you're looking for an effective way to unwind, then the Crunchy app might be just right for you.
 
-吱音app操作简单方便，只需打开应用，选择喜欢的声音类型和时长，就可以开始享受美食白噪音了。你还可以自由调节声音大小和混响效果，以及定时关闭功能。
+The Crunchy app is easy to operate, just open the app, choose the type and duration of the sound you like, and start enjoying the food white noise. You can also freely adjust the sound size and reverberation effect, as well as the timing off function.
 
-吱音app适合所有年龄段和职业的人群使用，特别是对于有失眠、焦虑、抑郁等问题的人来说，更是一款必备神器。
+Crunchy app is suitable for people of all ages and occupations, especially for people with insomnia, anxiety, depression and other problems, it is a must-have artifact.
